@@ -2,4 +2,4 @@
 
 🔭 Building stuff online & Learning by doing
 
-Discord: yO.1n.
+Discord: y0.1n.
